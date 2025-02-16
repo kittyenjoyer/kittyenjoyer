@@ -6,3 +6,5 @@
 ![image](https://github.com/user-attachments/assets/1a66311f-309e-4f20-8a82-49c454589bb3)
 ![image](https://github.com/user-attachments/assets/004ebff6-bb3a-4ef8-a268-6135374313f6)
 ![image](https://cdn.discordapp.com/attachments/1340787792153673818/1340792707005681674/tumblr_8e328528392d04c3012243fdd5429ae3_144f0978_100.webp?ex=67b3a604&is=67b25484&hm=79995b44b74c8e6f1878885320bf2aa8bd4e349ce440a9b498e8e45768e6efbb&)
+
+still a wip...
