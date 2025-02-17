@@ -60,9 +60,6 @@
 ![image](https://github.com/user-attachments/assets/2b80306f-e8c1-418b-83b6-d2456c54f8d4)
 ![image](https://64.media.tumblr.com/da9a9e325e4e60d4a1ae5048c070aab0/6ec1f705e5198951-df/s100x200/9b2a7e31a53a502a77526a2a2c37125762544ad5.pnj)
 ![image](https://64.media.tumblr.com/3f8515e539ff1ab04f1f534c170427dc/4b9e098e1753b2dc-39/s100x200/868ce58b676d0f7a2ccd69b4fa6b40d5be3d2ad0.pnj)
-![image](
-![image](
-![image](
 
 
 ૮꒰ ˶• ༝ •˶꒱ა ♡
