@@ -1,6 +1,9 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kittyenjoyer)
 
-![image](https://camo.githubusercontent.com/4d2cebd48247a64d9975f8d9d59327e866b327067413ca2c39b8c383c14e3434/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f35623661626534306431393361393834643138333965343661393836326263392f346564616436396635633764663332312d61362f73323530783430302f626364323630326134666262373639383632343266616331333333313062306435393532323131342e67696676)
+
+<h1 align="center">/ᐠ - ⩊ -マ Ⳋ</h1>
 
 
-new stamps soon since the last ones would NOT fix themselves (╥﹏╥) editing it rn ehehe
+
+<p align="center" dir="auto">
+<a href="https://trinx3.straw.page" rel=>strawpage</a> 　　　　 <a href="https://kittyenjoyer.atabook.org" rel=>sign ata</a>
