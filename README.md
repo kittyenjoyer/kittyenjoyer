@@ -6,7 +6,7 @@
 <h5 align="center"> hallo !! im trinity !! </h5>
 
 <p align="center" dir="auto">
-<a href="https://trinx3.straw.page" rel=>strawpage</a> 　　　　 <a href="https://kittyenjoyer.atabook.org" rel=>sign ata</a>
+<a href="https://trinx3.straw.page" rel=>strawpage</a> 　　 <a href="https://kittyenjoyer.atabook.org" rel=>sign ata</a>
 
 <h5 align="center"> ⸝⸝⸝ </h5>
 
