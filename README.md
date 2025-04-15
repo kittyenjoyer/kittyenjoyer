@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kittyenjoyer7\&color=grey)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kittyenjoyer&color=grey&label=۶ৎ+paw+prints)
 
 
 <h1 align="center"> /ᐠ - ⩊ -マ Ⳋ </h1>
